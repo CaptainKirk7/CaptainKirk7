@@ -1,0 +1,2 @@
+- 👋 Hi, I’m @CaptainKirk7
+- 👀 I’m interested in CS
